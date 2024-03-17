@@ -1,4 +1,5 @@
-![logo](https://github.com/whitedevil1312/whitedevil1312/assets/47555753/5da9b8b6-846e-4f8a-974c-83345d7aced1)
+![logo](https://github.com/whitedevil1312/whitedevil1312/assets/47555753/ce147a78-9cae-4097-8417-721e170adf95)
+
 
 
 
